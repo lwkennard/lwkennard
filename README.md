@@ -1,1 +1,1 @@
-https://kennard.io/
+._.
